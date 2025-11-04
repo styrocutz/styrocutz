@@ -14,6 +14,8 @@ don't use it / its or she / her on me thanks ..
 
 　‿ ‿ ‿ ‿ ‿ ‿ ‿ ‿　‿ ‿ ‿ ‿ ‿ ‿ ‿ ‿
 
+ I am currently not mentally well . so please iwc thanks
+
  I'm proship , dark ship and comship . I have NO dni but if you don't like proshippers I sugest you to not int with me and/or block me . I darkship and comship to cope with my paraphilic and hypersexual thoughts . I won't speak openly about it unless you ask , but even if you do .. I might not be comfortable with sharing so theres no point in you asking anyways really .
 
  I get upset / angry easily . Usually over the smallest of stuff and will usually have '' dni , iyaor or dniuii/dniucf '' in my discord status . 
