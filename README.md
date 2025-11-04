@@ -2,7 +2,6 @@
  　
 # 　𝑰𝘯𝘵𝘳𝘰 / 𝑨𝘣𝘰𝘶𝘵 ! .. 
 
-[(https://lastfm-recently-played.vercel.app/api?user=styrocutz)](https://www.last.fm/user/styrocutz)
 
  𝘯𝘢𝘮𝘦 + 𝘯𝘪𝘤𝘬𝘯𝘢𝘮𝘦𝘴 = styro / deiran / lewellyn / astro / sol / ren / fox and jasper . 
  
