@@ -2,7 +2,7 @@
  　
 # 　𝑰𝘯𝘵𝘳𝘰 / 𝑨𝘣𝘰𝘶𝘵 ! .. 
 
-[![Spotify](https://img.shields.io/badge/Listening--To-Sorry_-_Days_of_Uselessness-1DB954?style=flat&logo=spotify&logoColor=white)](https://open.spotify.com/track/3mJZJ2YzY0vYzFZKZzqZxM)
+![My Last.fm Scrobbles](https://lastfm-recently-played.vercel.app/api?user=styrocutz)
 
  𝘯𝘢𝘮𝘦 + 𝘯𝘪𝘤𝘬𝘯𝘢𝘮𝘦𝘴 = styro / deiran / lewellyn / astro / sol / ren / fox and jasper . 
  
