@@ -2,7 +2,7 @@
  　
 # 　𝑰𝘯𝘵𝘳𝘰 / 𝑨𝘣𝘰𝘶𝘵 ! .. 
 
-<iframe data-testid="embed-iframe" style="border-radius:12px" src="https://open.spotify.com/embed/track/3TIhbZIvRpuXhfSZSqEzxC?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
+[![Spotify](https://img.shields.io/badge/Listening--To-Sorry_-_Days_of_Uselessness-1DB954?style=flat&logo=spotify&logoColor=white)](https://open.spotify.com/track/3mJZJ2YzY0vYzFZKZzqZxM)
 
  𝘯𝘢𝘮𝘦 + 𝘯𝘪𝘤𝘬𝘯𝘢𝘮𝘦𝘴 = styro / deiran / lewellyn / astro / sol / ren / fox and jasper . 
  
